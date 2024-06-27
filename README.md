@@ -1,11 +1,2 @@
 # Wassup!
-I'm Eddie (eddiethecatkid) and I like to code and expose.
-
-## Who are you?
-One of the worst developers to the point where its not even funny.
-
-## Can I be your Discord friend?
-Maybe. Only if I know you well.
-
-## What are your hobbies?
-Being silly.
+I'm Eddie (eddiethecatkid) and I'm the worst developer ever to the point where it's not funny. I'm also the stupidest person you'll ever meet.
